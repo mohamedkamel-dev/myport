@@ -1,2 +1,0 @@
-# myport
-Portfolio Graphic Designer
